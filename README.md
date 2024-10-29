@@ -14,17 +14,17 @@ https://vimeo.com/cisnewsstudio1s<br>
 https://dailymotion.com/cisnewsstudio1s<br>
 https://web.facebook.com/groups/cisnewsstudio1s<br>
 https://github.com/cisnewsstudio1s<br>
-https://cisnewsstudio1s.blogspot.com<br><br>
+https://cisnewsstudio1s.blogspot.com<br>
 
 <b>CIS News Studio 1s Website</b><br>
-https://cisnewsstudio1s.com/<br><br>
+https://cisnewsstudio1s.com/<br>
 
 <b>Creative Ideas Studio 1s</b><br>
 https://youtube.com/@creativeideasstudio1s<br>
-https://creativeideasstudio1s.blogspot.com<br><br>
+https://creativeideasstudio1s.blogspot.com<br>
 
 <b>ComplainFraud | Cybercrime Report Center</b><br>
-https://complainfraud.odeonus.com<br><br>
+https://complainfraud.odeonus.com<br>
 
 <!---
 cisnewsstudio1s/cisnewsstudio1s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
