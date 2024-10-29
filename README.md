@@ -1,5 +1,5 @@
-- 👋 Welcome to CIS Nrws Studio 1s World News | @cisnewsstudio1s
-- 👀 Breaking news worldwide...
+Welcome to <br>CIS Nrws Studio 1s World News<br/> | @cisnewsstudio1s
+👀 Breaking news worldwide...
 
 <b>CIS News Studio 1s World News</b><br>
 https://youtube.com/@CISNewsStudio1s<br>
