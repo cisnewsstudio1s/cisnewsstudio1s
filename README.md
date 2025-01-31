@@ -10,11 +10,14 @@ https://pinterest.com/cisnewsstudio1s<br>
 https://tiktok.com/@cisnewsstudio1s<br>
 https://tumblr.com/cisnewsstudio1s<br>
 https://medium.com/@cisnewsstudio1s<br>
+https://mastodon.social/@cisnewsstudio1s<br>
+https://cisnewsstudio1s.quora.com/<br>
+https://cisnewsstudio1s.blogspot.com<br>
 https://vimeo.com/cisnewsstudio1s<br>
 https://dailymotion.com/cisnewsstudio1s<br>
-https://web.facebook.com/groups/cisnewsstudio1s<br>
+https://www.facebook.com/cisnewsstudio1sworldnews<br>
 https://github.com/cisnewsstudio1s<br>
-https://cisnewsstudio1s.blogspot.com<br>
+
 
 <b>CIS News Studio 1s Website</b><br>
 https://cisnewsstudio1s.com/<br>
